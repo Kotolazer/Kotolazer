@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Kotolazer
+- 👀 I’m interested in python, c#
+- 🌱 I’m currently learning ничего
+- 💞️ I’m looking to collaborate on false
+- 📫 How to reach me никак
